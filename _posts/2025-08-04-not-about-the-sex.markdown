@@ -4,7 +4,7 @@ title: "It's not about the sex: the moral restoration response to Trumpism"
 date: 2025-08-04 10:00:00 -0700
 ---
 
-Linda discovers evidence hat her faithful spouse of many years, Mike, has engaged in sexual infidelity. When she initially confronts him, Mike contritely assures Linda that there was only one, fleeting indiscretion which will never repeat itself. But Linda later discovers that Mike is actually having a full-blown affair.
+Linda discovers evidence that her faithful spouse of many years, Mike, has engaged in sexual infidelity. When she initially confronts him, Mike contritely assures Linda that there was only one, fleeting indiscretion which will never repeat itself. But Linda later discovers that Mike is actually having a full-blown affair.
 
 When she turns to her friends for support, Linda receives two conflicting pieces of unsolicited advice. Jenny suggests that Linda should start hitting the gym and spice things up in the bedroom with Mike, to win him back from her rival. Francine introduces Linda to dating apps, suggesting that Linda may have to accept an open marriage with Mike.
 
